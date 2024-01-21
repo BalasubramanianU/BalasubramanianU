@@ -10,4 +10,4 @@ I am a dedicated Software Engineering Graduate student at Northeastern Universit
 
 🤝 Let's connect! I am open to discussions, collaboration, and exploring new possibilities in the dynamic world of software engineering.
 
-Contact: https://www.linkedin.com/in/balasubramanian-u/
+Contact: ubalasubramanian03@gmail.com
