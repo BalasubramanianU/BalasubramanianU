@@ -12,4 +12,4 @@ I am a dedicated Software Engineering Graduate student at Northeastern Universit
 
 My best work - https://github.com/cyse7125-su24-team12
 
-Contact: ubalasubramanian03@gmail.com
+Contact: ulaganathan.b@northeastern.edu
